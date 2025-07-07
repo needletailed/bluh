@@ -1,2 +1,1 @@
-![image](https://github.com/user-attachments/assets/cfa7ff11-0129-4978-8c2a-51dd586873c0)
-art by culinaryTurrets
+![image](https://static.wikia.nocookie.net/warriors/images/c/cb/Ferncloud.ATIT.png/revision/latest/scale-to-width-down/1000?cb=20230610194134)
