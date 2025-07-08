@@ -1,1 +1,1 @@
-![image](https://static.wikia.nocookie.net/warriors/images/c/cb/Ferncloud.ATIT.png/revision/latest/scale-to-width-down/1000?cb=20230610194134)
+<p align="center"> <img src="https://i.postimg.cc/N01fDk4W/Ferncloud-ATIT.webp" width=300> </p>
